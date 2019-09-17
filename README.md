@@ -15,3 +15,12 @@
 ```
 `Practice`
 [OO_FB](https://www.facebook.com/groups/1417126721769068/?ref=bookmarks)
+
+:wheelchair: 🌜
+:hankey: :poop: :rat:
+
+
+|ococ|4444 |rat |
+|:---|:---:|---:|
+|4444|ococ |rat |
+|oc  |oc   |4444|
